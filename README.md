@@ -1,3 +1,3 @@
-# Projeto e Andamentos
+# Projeto e Contratos em andamentos
 
-Projetos em andamento
+Projetos e Contratos em andamento
